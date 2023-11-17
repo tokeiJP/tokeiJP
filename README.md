@@ -1,5 +1,5 @@
 - 👋 Hello, my name is Tokei.
-- 👀 I'm from Japan.
+- 👀 I am Japanese.
 - 💞 I love Fortnite.
 - 📩 https://twitter.com/projecttokei
 
