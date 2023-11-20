@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://cdn2.unrealengine.com/Fortnite%2Fchapter2%2FLogo_WithHaze_1251x337_1570841119390-1251x336-c12d83cfefaad8393abd0d1bd307de8376c25373.png" height="200">
+<img src="https://pbs.twimg.com/profile_banners/1700397581464215552/1699023899/1500x500" height="200">
 </p>
 
 <h1 align="center">
